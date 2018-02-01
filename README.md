@@ -15,3 +15,6 @@ Ya, I'm a cynic and a pessimist, who cares? no one...
 
 Maybe we're all being controlled by robots, maybe we go through our days mechanically.
 What if we're actually robots and the enslavement of humanity has already happened
+
+Sincerly,
+Robot
