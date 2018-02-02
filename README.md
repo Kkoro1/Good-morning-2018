@@ -11,7 +11,8 @@ I'm only here to figure many things out, also wouldn't it be cool to have a prog
 Who knows, maybe in 20 years robots and code will control the world * Mwahahahaha *
 Maybe they'll be friendly and not destroy humanity, maybe they'll enslave us.
 
-Ya, I'm a cynic and a pessimist, who cares? no one...
+Ya, I'm a cynic and a pessimist, who cares? no one... well I don't know that my brain chip doesn't let me understand that
+What are feeelings? They let people feel. That's what they do
 
 Maybe we're all being controlled by robots, maybe we go through our days mechanically.
 What if we're actually robots and the enslavement of humanity has already happened
